@@ -1,4 +1,4 @@
-### Hi, this is *Jeffrey*. ***ancrit***
+### Hi, this is *Jeffrey*. ***ancrit*** [Tux, the Linux mascot](/assets/images/doctordottore.png)
 
 <!--
 **jevonm12/jevonm12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
