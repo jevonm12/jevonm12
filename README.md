@@ -1,4 +1,4 @@
-### Assalamualaikum, nice to meet you. I'm Jeffrey *Jeffrey*. ***ancrit***
+### Assalamualaikum, nice to meet you. I'm *Jeffrey*. ***ancrit***
 ![Jeffrey, Il Dottore](/Doctor-Dottore-genshinimpact-Genshinfanart-dottore.jpg)
 
 <!--
