@@ -1,5 +1,5 @@
 ### Assalamualaikum, nice to meet you. I'm *Jeffrey*. ***ancrit***
-![Jeffrey, Il Dottore](/Doctor-Dottore-genshinimpact-Genshinfanart-dottore.jpg)
+![Jeffrey, Il Dottore](/zyoojoonghyuk.jpg)
 
 <!--
 **jevonm12/jevonm12** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
